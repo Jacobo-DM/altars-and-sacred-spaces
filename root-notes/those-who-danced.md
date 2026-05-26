@@ -5,7 +5,7 @@
 
 “And there were those who danced in the light of the second sun. Remember us.”
 
-— written in Hiroshima, Japan, 1998
+— original line from a poem by Jacobo Hernández Durbin, written in Hiroshima, Japan, 1998
 
 ---
 
@@ -32,5 +32,10 @@ At night,
 something stands up on the wall.
 
 ---
+---
+
+© Jacobo Hernández Durbin. Shared under CC BY-NC-SA 4.0 unless otherwise noted.
+
+This line is original to the author and is not an official memorial text or institutional statement.
 
 *First planting for Altars & Sacred Spaces. Placed May 2026.*
